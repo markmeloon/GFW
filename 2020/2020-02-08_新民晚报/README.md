@@ -1,4 +1,4 @@
-# 新民晚报《让公开透明的阳光刺破病毒雾瘴》
+﻿# 新民晚报《让公开透明的阳光刺破病毒雾瘴》
 
 https://www.douban.com/people/metalbeast/status/2799116099/   
 兽 转发:  
@@ -8,7 +8,8 @@ https://www.douban.com/people/metalbeast/status/2799116099/
 
 https://mp.weixin.qq.com/s/TXSj9EsCQKb8aD1_n_4POg   
 **新民晚报正面开怼，阿拉上海人就是看不下去了！**  
-Original 南苑大王 鉴茶院 Yesterday   
+Original 南苑大王 鉴茶院 Yesterday 
+  
 2月7日，大家对李文亮医生充满哀悼和钦佩的当天，《新民晚报》直接上硬核了，头版大幅照片加黑底送别。   
 
 而且绝不遮遮掩掩，版下直接就是一篇评论:《让公开透明的阳光刺破病毒雾瘴》。
@@ -20,6 +21,8 @@ Original 南苑大王 鉴茶院 Yesterday
 各家自媒体欲说还休的“吹哨人”、“预警制”，新民作为官媒光明正大的全都给他用上，算是正名了。
 
 要知道，武汉的训诫还没有撤销。
+
+<img src="https://github.com/markmeloon/GFW/blob/master/2020/2020-02-08_%E6%96%B0%E6%B0%91%E6%99%9A%E6%8A%A5/01.jpg?raw=true" width=700>
 
 这就是上海，这就是国际化大都市，别看平常可能斤斤计较，但关键时候，绝对爱憎分明，有情有义。
 
