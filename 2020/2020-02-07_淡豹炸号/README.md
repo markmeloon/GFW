@@ -1,4 +1,4 @@
-# 淡豹炸号
+﻿# 淡豹炸号
 
 
 https://www.douban.com/people/110504879/status/2797412801/   
@@ -6,4 +6,4 @@ https://www.douban.com/people/110504879/status/2797412801/
 2020-02-08 03:24:20  
 淡豹写的这篇文章还有没看过的朋友吗。这是微博网友@绝缘体本体ego 分享的图，他说存在七牛上不会被删，看到脑子里也不会被删的。今天我隔一段时间就转一转，淡豹因为这篇文章炸号，文章也被删，作为千里之外的网友我能做的就是尽可能让这篇文章被更多人看到。
 
-<img src="https://github.com/markmeloon/GFW/blob/master/2020/2020-02-07_%E6%B7%A1%E8%B1%B9%E7%82%B8%E5%8F%B7/01.jpg?raw=true">
+<img src="https://github.com/markmeloon/GFW/blob/master/2020/2020-02-07_%E6%B7%A1%E8%B1%B9%E7%82%B8%E5%8F%B7/01.jpg?raw=true" width=450>
