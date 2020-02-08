@@ -9,5 +9,9 @@ https://www.douban.com/people/asukafai/status/2797672988/
 2020-02-08 11:05:40   
 看到#29%为医护人员感染#和#41.3%为医院内感染#，我简直不敢想象早期医院里到底发生了什么   
 
-<img src="">
+<img src="https://github.com/markmeloon/GFW/blob/master/2020/2020-02-07_%E6%B5%81%E8%A1%8C%E7%97%85%E5%AD%A6/01.jpg?raw=true">
+
+<img src="https://github.com/markmeloon/GFW/blob/master/2020/2020-02-07_%E6%B5%81%E8%A1%8C%E7%97%85%E5%AD%A6/02.jpg?raw=true">
+
+<img src="https://github.com/markmeloon/GFW/blob/master/2020/2020-02-07_%E6%B5%81%E8%A1%8C%E7%97%85%E5%AD%A6/03.jpg?raw=true">
 
