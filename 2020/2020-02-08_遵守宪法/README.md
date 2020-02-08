@@ -6,7 +6,7 @@ https://www.douban.com/people/asukafai/status/2798025980/
 2020-02-08 14:49:38  
 #截图留证#有人存原文吗？在线等  
 
-<img src="https://github.com/markmeloon/GFW/blob/master/2020/2020-02-08_%E9%81%B5%E5%AE%88%E5%AE%AA%E6%B3%95/01.png?raw=true" width=500>
+<img src="https://github.com/markmeloon/GFW/blob/master/2020/2020-02-08_%E9%81%B5%E5%AE%88%E5%AE%AA%E6%B3%95/02.png?raw=true" width=500>
 
 https://www.chinesepen.org/blog/archives/143064
 
@@ -26,5 +26,5 @@ https://www.chinesepen.org/blog/archives/143064
 2020.02.08
 ```
 
-<img src="https://github.com/markmeloon/GFW/blob/master/2020/2020-02-08_%E9%81%B5%E5%AE%88%E5%AE%AA%E6%B3%95/01.png?raw=true">
+<img src="https://github.com/markmeloon/GFW/blob/master/2020/2020-02-08_%E9%81%B5%E5%AE%88%E5%AE%AA%E6%B3%95/01.png?raw=true" width=700>
 
