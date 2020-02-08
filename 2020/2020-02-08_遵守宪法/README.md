@@ -6,6 +6,9 @@ https://www.douban.com/people/asukafai/status/2798025980/
 2020-02-08 14:49:38  
 #截图留证#有人存原文吗？在线等  
 
+<img src="https://github.com/markmeloon/GFW/blob/master/2020/2020-02-08_%E9%81%B5%E5%AE%88%E5%AE%AA%E6%B3%95/01.png?raw=true" width=500>
+
+https://www.chinesepen.org/blog/archives/143064
 
 ```
 理想国喇叭：建议开展遵守宪法35条全民大讨论
@@ -22,4 +25,6 @@ https://www.douban.com/people/asukafai/status/2798025980/
 文章来源：今日头条
 2020.02.08
 ```
+
+<img src="https://github.com/markmeloon/GFW/blob/master/2020/2020-02-08_%E9%81%B5%E5%AE%88%E5%AE%AA%E6%B3%95/01.png?raw=true">
 
